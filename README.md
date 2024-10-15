@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @PushkarSoni07
-- 👀 I’m interested in coding And Playing Various Instruments Like Drum Flute Etc
+- 👀 I’m interested in coding And Playing Various Instruments Like Drum guitar Etc
 - 🌱 I’m currently pursuing my  undergraduation from Shri Vaishnav Vidyapeeth Vishwavidyalaya Indore
 
 
